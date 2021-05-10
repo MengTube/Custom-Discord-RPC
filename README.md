@@ -1,4 +1,4 @@
-Watch this tutorial to see how to set it up!!!
+Watch this tutorial to see how to set it up!!! https://www.youtube.com/watch?v=nqg2WhJt91c
 
 Make sure you subscribe to MengTube!!! https://youtube.com/MengTube
 
